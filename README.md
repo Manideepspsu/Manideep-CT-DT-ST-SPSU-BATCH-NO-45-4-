@@ -1,1 +1,4 @@
- Manideep-CT-DT-ST-SPSU-BATCH-NO-45-4-
+Golla manideep 
+ravula Deekshith Reddy
+Mothe Sai Charan 
+Anshul Kumar Ameta
